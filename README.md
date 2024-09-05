@@ -1,6 +1,6 @@
 ## ola
 
-![](https://tenor.com/pt-BR/view/charles-leclerc-spanish-gp2022-gif-25745587)
+![](https://media1.tenor.com/m/J9lnKRr9ORoAAAAd/charles-leclerc-spanish-gp2022.gif)
 
 
 
